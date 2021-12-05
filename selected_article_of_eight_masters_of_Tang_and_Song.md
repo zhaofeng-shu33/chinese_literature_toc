@@ -1,5 +1,5 @@
-high school Chinese textbook
+high school Chinese textbook, 32 articles in total
 
 苏教版
 
-Read online: http://www.fhebook.cn/h5book/202002/yuwen/xuanxiu4b/
+Read online: https://www.fhebook.cn/szjc (need login)
