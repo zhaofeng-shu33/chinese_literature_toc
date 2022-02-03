@@ -6,7 +6,11 @@
 * 魔女の宅急便　角野栄子
 ## 英語
 * Harry Potter and the sorcerer's stone
+* Alice's Adventure in Wonderland
+* The wonderful wizard of Oz
 ## ドイツ語
 * Das fliegend Klasszimmer
+* Heidi
+* Grimms Märchen
 ## フランス語
 * Le petit prince
