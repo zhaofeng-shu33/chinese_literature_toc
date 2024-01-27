@@ -1,6 +1,6 @@
 # 七年级上册
 1. 在山的那边（王家新）
-2. 走一步，再走一步（莫顿•亨特）
+2. 走一步，再走一步（莫顿•亨特）,  extracted partly from the eassy by Morton Hunt, titled "The Lesson of the Cliff", 1976
 3. 短文两篇，禅（小思）贝壳（席慕容）
 4. 紫藤萝瀑布（宗璞）
 5. 童趣（沈复）
