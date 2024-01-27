@@ -16,7 +16,7 @@
 15. 说“屏”（陈从周）
 16. 大自然的语言（竺可桢）
 17. 奇妙的克隆（谈家桢）
-18. 阿西莫夫短文两篇，恐龙无处不在，被压扁的沙子
+18. 阿西莫夫短文两篇，恐龙无处不在，被压扁的沙子, by Isaac Asimov, selected from the book "Frontiers: New Discoveries about Man and His Planet, Outer Space, and the Universe", 1989
 19. 生物入侵者（梅涛）
 20. 落日的幻觉（黄天祥）
 21. 桃花源记（陶渊明）
