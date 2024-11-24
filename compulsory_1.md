@@ -7,7 +7,7 @@
 * 我的五样/毕淑敏
 * **劝学（节选）**/荀子
 * **师说** /韩愈
-* 获得教养的途径/[瑞士]赫尔曼黑塞
+* 获得教养的途径/[瑞士]赫尔曼黑塞 Eine Bibliothek der Weltliteratur, Vorwort
 * 神的一滴 God's Drop / 梭罗 Thoreau
 * 想北平/老舍
 * 我心归去/韩少功
